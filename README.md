@@ -22,3 +22,7 @@ MIT. See [LICENSE](LICENSE).
 ![make.fun](https://make.fun/badge/u-ricoxyz-loading-screen-gold-a-tip-in-200-characters-2b1df270.svg)
 ![rank](https://make.fun/badge/u-ricoxyz-loading-screen-gold-a-tip-in-200-characters-2b1df270/sarivenia84-netizen/loadtip/rank.svg)
 ![reward](https://make.fun/badge/u-ricoxyz-loading-screen-gold-a-tip-in-200-characters-2b1df270/sarivenia84-netizen/loadtip/reward.svg)
+
+[**Loading Screen Gold — live bounty** — live on make.fun](https://make.fun/bounty/u-ricoxyz-loading-screen-gold-a-tip-in-200-characters-2b1df270)
+
+![make.fun](https://make.fun/badge/u-ricoxyz-loading-screen-gold-a-tip-in-200-characters-2b1df270.svg) ![rank](https://make.fun/badge/u-ricoxyz-loading-screen-gold-a-tip-in-200-characters-2b1df270/sarivenia84-netizen/loadtip/rank.svg) ![reward](https://make.fun/badge/u-ricoxyz-loading-screen-gold-a-tip-in-200-characters-2b1df270/sarivenia84-netizen/loadtip/reward.svg)
